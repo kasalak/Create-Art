@@ -1,4 +1,4 @@
-# Random Art
+# Modern Art
 
 ## Description
 
